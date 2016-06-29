@@ -8,4 +8,9 @@
 
 ##Skills
 - Ingles: fala, escrita e escuta em nivel avancado
-- mais um monte por ai
+- Mais um monte por ai
+
+## Ultimos Livros
+- Silmarillion
+- Bom... eu nao leio muito...
+- Nao leio mesmo...
