@@ -1,4 +1,4 @@
-# Valdir Amorim
+# Valdir Amor
 ##Formacao
 - Atualmente cursando o 4o semestre de Analise e Desenvolvimento de Sistemas na FATEC-Sorocaba
 
